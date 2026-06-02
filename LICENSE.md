@@ -1,4 +1,4 @@
-# 
+# Código abierto WinRAR flujo de trabajo para Mac OS | Exclusivo WinRAR flujo de trabajo para PC Windows. Con integración en la nube y temas personalizados — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
